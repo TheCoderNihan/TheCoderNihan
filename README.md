@@ -6,7 +6,7 @@
 
 -Based in Kerala , India
 
--To connect , click this link to land to my LinkrdIn profile : www.linkedin.com/in/nihan-hisham
+-To connect , click this link to land to my LinkedIn profile : www.linkedin.com/in/nihan-hisham
 
 ------------------------------Goodbye for now amigos👋👋------------------------------------
 
